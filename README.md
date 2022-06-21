@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Snegzana.github.io/rsschool-cv/
